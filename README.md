@@ -6,6 +6,10 @@
 - Utilizo este espaço para armazenar meus códigose compartilhar experiências
 
 - ### Meu email de contato é 📧
-- l.matheus28@escola.pr.gov.br
-
-- ![](https://media.tenor.com/Q6dR4LCew1EAAAAd/neymar-jr-dribbling.gif)
+- l.matheus28@escola.p
+- sha do do eu
+- abu
+- abu
+- abu
+- abu
+- 
